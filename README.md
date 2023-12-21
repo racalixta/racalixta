@@ -1,4 +1,4 @@
-## Olá, eu sou a Rafael Calixta!
+## Olá, me chamo Rafael Calixta!
 
 ### Seja bem-vindo ao meu perfil 🍕🍃☕ <br>
 Sou formado em Análise e Desenvolvimento de Sistemas e atualmente estou cursando pós-graduação em Segurança da Informação. Sou um grande entusiasta por desenvolvimento web e estou em busca de oportunidades que me desafiem e me permitam crescer profissionalmente. Em busca de oportunidade como Desenvolvedor Web Jr., sou comprometido com o desenvolvimento de projetos proveitosos, comunicação eficaz e motivado para integrar equipes dinâmicas. Pronto para contribuir ativamente enquanto aprimoro minhas habilidades através de experiências práticas.
